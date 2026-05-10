@@ -1,4 +1,4 @@
-# Level Up Earth (formerly PedhPoints)
+# Level Up Earth
 
 **DO GOOD. GET REWARDED.**
 
